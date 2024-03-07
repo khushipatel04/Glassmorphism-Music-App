@@ -4,3 +4,4 @@
 
 ![image](https://github.com/khushipatel04/Glassmorphism-Music-App/assets/98440458/e8a9e6ac-6a8c-46b8-a106-9aedb10bd79b)
 
+![image](https://github.com/khushipatel04/Glassmorphism-Music-App/assets/98440458/f414757a-f481-4a57-94a5-fae96e936b4a)
